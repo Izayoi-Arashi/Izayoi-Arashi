@@ -1,4 +1,4 @@
-# Hi 👋, I'm 十六夜的Sakurua
+# Hi 👋, I'm 十六夜的Sakuya
 
 ### A developer with artistic flair
 
