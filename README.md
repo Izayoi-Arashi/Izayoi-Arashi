@@ -1,4 +1,4 @@
-# Hi 👋, I'm 十六夜的Sakuya
+# Hi 👋, I'm Arashi
 
 ### A developer with artistic flair
 
